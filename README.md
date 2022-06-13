@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **lakhanishyam11@gmail.com**
 
-- ⚡ Fun fact **I'm a Graduate Master Student living in Mannheim, Germany. Outside Tech, I love to read, enjoy music and explore nature outdoors. If you are around Mannheim, Germany, drop an email and let's catch-up over Coffee!**
+- ⚡ Fun fact **I'm a Master Graduted in Applied Computer Science, and living in Mannheim, Germany. Outside Tech, I love to read, enjoy music and explore nature outdoors. If you are around Mannheim, Germany, drop an email and let's catch-up over Coffee!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
